@@ -1,6 +1,6 @@
-# Quran Chapter 1 | [QuranBookk.com](http://www.quranbookk.com/) 
+# [Quran Chapter 39](https://www.quranbookk.com/quran/search?q=39:) | QuranBookk.com 
 
-For more infos, Click [QuranBookk - 1](https://www.quranbookk.com/quran/search?q=1:) to Search at [QuranBookk.com](http://quranbookk.com/)
+For more infos, Click [QuranBookk - 39](https://www.quranbookk.com/quran/search?q=39:) to Search at [QuranBookk.com](http://quranbookk.com/)
 
 
 # QuranBookk.com - Quran | [QuranBook](https://www.quranbookk.com)
